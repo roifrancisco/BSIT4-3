@@ -12,3 +12,5 @@ Roi Francisco - Instructor - :)
 <br>Tejuco, Ian Gabriel
 <br>Marisol Adriano
 <br>Shaira June Maarat
+<br>Jan Edward Malanday
+
