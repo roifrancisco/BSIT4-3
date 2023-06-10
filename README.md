@@ -15,3 +15,4 @@ Roi Francisco - Instructor - :)
 <br>Jan Edward Malanday
 <br>Vince Gabriel Real
 <br>Maricon Domingo Olfindo
+<br>John Kendrick Bilan
