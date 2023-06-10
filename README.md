@@ -14,4 +14,4 @@ Roi Francisco - Instructor - :)
 <br>Shaira June Maarat
 <br>Jan Edward Malanday
 <br>Vince Gabriel Real
-<br>Maricon Olfindo
+<br>Maricon Domingo Olfindo
