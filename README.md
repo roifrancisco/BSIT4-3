@@ -10,3 +10,4 @@ Roi Francisco - Instructor - :)
 <br>Nina Turiano
 <br>Venus Marie Eras
 <br>Tejuco, Ian Gabriel
+<br>Marisol Adriano
