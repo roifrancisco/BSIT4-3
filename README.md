@@ -13,4 +13,4 @@ Roi Francisco - Instructor - :)
 <br>Marisol Adriano
 <br>Shaira June Maarat
 <br>Jan Edward Malanday
-
+<br>Vince Gabriel Real
