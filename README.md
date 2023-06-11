@@ -18,3 +18,4 @@ Roi Francisco - Instructor - :)
 <br>John Kendrick Bilan
 <br>Nicole Kay Anacleto
 <br>Ralph jason Laurente
+<br>Ginalyn Pinto
