@@ -21,3 +21,4 @@ Roi Francisco - Instructor - :)
 <br>Ginalyn Pinto
 <br>Jennifer Balanay
 <br>Geraldine Canezo
+<br>Lester John Gatpolintan
