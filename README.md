@@ -22,3 +22,4 @@ Roi Francisco - Instructor - :)
 <br>Jennifer Balanay
 <br>Geraldine Canezo
 <br> Jamaica Grace Uy
+<br> Rosemarie Maramot
