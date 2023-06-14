@@ -24,3 +24,4 @@ Roi Francisco - Instructor - :)
 <br> Jamaica Grace Uy
 <br> Rosemarie Maramot
 <br>Nhelgene Agravante
+<br>Vesanie Marie Bernal
