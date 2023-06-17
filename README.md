@@ -26,3 +26,4 @@ Roi Francisco - Instructor - :)
 <br>Nhelgene Agravante
 <br>Vesanie Marie Bernal
 <br>Angelica Rodriguez
+<br>Kurt Alec Cacapit
