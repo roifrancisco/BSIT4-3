@@ -25,3 +25,4 @@ Roi Francisco - Instructor - :)
 <br> Rosemarie Maramot
 <br>Nhelgene Agravante
 <br>Vesanie Marie Bernal
+Angelica Rodriguez
