@@ -30,3 +30,4 @@ Roi Francisco - Instructor - :)
 <br>Theyarra Jasmin
 <br>Sara Michelle Palita
 <br>Jennifer Balanay
+<br>Chriszel Mae Lim
