@@ -34,3 +34,4 @@ Roi Francisco - Instructor - :)
 <br> Noel Banares
 <br> Marc Clarence Salvador
 <br> Angela Mae Ducalang
+<br> Shella Mae Lasquite
