@@ -33,3 +33,4 @@ Roi Francisco - Instructor - :)
 <br>Chriszel Mae Lim
 <br> Noel Banares
 <br> Marc Clarence Salvador
+<br> Angela Mae Ducalang
