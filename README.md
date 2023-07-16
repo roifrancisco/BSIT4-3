@@ -31,3 +31,4 @@ Roi Francisco - Instructor - :)
 <br>Sara Michelle Palita
 <br>Jennifer Balanay
 <br>Chriszel Mae Lim
+<br> Noel Banares
