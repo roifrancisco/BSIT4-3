@@ -35,3 +35,4 @@ Roi Francisco - Instructor - :)
 <br> Marc Clarence Salvador
 <br> Angela Mae Ducalang
 <br> Shella Mae Lasquite
+<br> Jarold Jamisola
